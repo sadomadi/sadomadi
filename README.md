@@ -1,7 +1,5 @@
 <p align="center">
-  <img src="[https://cdn.discordapp.com/attachments/1245131116478992394/1253904620330291271/tumblr_554001fb74ab829d4dd4399aa40fb255_77d0374c_1280.gif](https://64.media.tumblr.com/554001fb74ab829d4dd4399aa40fb255/4f7868fcf589bdc4-05/s1280x1920/77d0374ccaa86d554123d113c32d8885803d39ba.gif)" alt="GIF"/>
-</p>
-
+<img src="https://cdn.discordapp.com/attachments/1245131116478992394/1253904620330291271/tumblr_554001fb74ab829d4dd4399aa40fb255_77d0374c_1280.gif](https://64.media.tumblr.com/554001fb74ab829d4dd4399aa40fb255/4f7868fcf589bdc4-05/s1280x1920/77d0374ccaa86d554123d113c32d8885803d39ba.gif" alt="alt text" title="image Title" />
 ## <p align="center"> Development </p>
 =======
 <p align="center">
