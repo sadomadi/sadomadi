@@ -41,3 +41,8 @@
 -    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎  ‎ ‎ ‎ ${\textsf{\color{Grey}blue lock, chainsaw man, blue period also bangers! <3}}$
 <br clear="right"/>
 <br clear="right"/>
+
+##
+<img src="https://64.media.tumblr.com/f6c81768c54e626c3ba1ba4fd5f194a0/05ca8367a2c37738-25/s1280x1920/f04cd648c9c2e84b6ef333019eda7dabea822028.png"> 
+<p align="center"> ${\textsf{\color{Orchid}my discord is @nalhegrande! talk to me about fun stuff <3}}$
+<p align="center"> ${\textsf{\color{Orchid}thank you for reading! get back to the funny horse game now}}$
