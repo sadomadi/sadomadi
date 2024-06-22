@@ -22,9 +22,22 @@
   
   
  -  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ${\textsf{\color{Grey}c + h means you are always welcome to cuddle and hide me, i do not care}}$
--  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎                                                     ‎ ‎ ‎ ‎ ${\textsf{\color{Grey}if you want any part of my outfit, just ask, i still do not care}}$
+-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎‎ ‎ ‎        ‎ ‎ ${\textsf{\color{Grey}if you want any part of my outfit, just ask, i still do not care}}$
 -    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎         ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ${\textsf{\color{Grey} i am sometimes afk to do other things! please whisper if i dont respond }}$
 -    -    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎         ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ${\textsf{\color{Grey} i am usually with friends! you are welcome to join }}$
-     -    -    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎         ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ${\textsf{\color{Grey} please do not shit talk nahyuta in front of me. it's all i ask :( }}$
+     -    -    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎         ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎‎ ‎  ‎ ${\textsf{\color{Grey} please do not shit talk nahyuta in front of me. it's all i ask :( }}$
   <br clear="left"/>
 </p>
+
+## 
+<p align="center"> ${\textsf{\color{Orchid}INTERESTS}}$
+
+<img align="right" src="https://preview.redd.it/wz7r3lm5x9p91.jpg?width=640&crop=smart&auto=webp&s=2883bc788974106cb219ad470b072cd338a23d52" width="200" height="200">
+<p align="center">
+
+  - ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ **${\textsf{\color{Grey}extremely into ace attorney!! please talk to me about it}}$**
+ -  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\textsf{\color{Grey}granblue fantasty, though not as intenstely }}$
+-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎  ${\textsf{\color{Grey}EXTREMELY sane about nahyuta sahdmadhi. does this count?}}$
+-    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎  ‎ ‎ ‎ ${\textsf{\color{Grey}blue lock, chainsaw man, blue period also bangers! <3}}$
+<br clear="right"/>
+<br clear="right"/>
