@@ -5,11 +5,9 @@
 
 ## 
 <p align="center"> ${\textsf{\color{Orchid}INFORMATION}}$
-
 <img align="left" src="https://i.pinimg.com/736x/e6/41/f1/e641f1d881badd842d07c486b21d649a.jpg" width="200" height="200">
 <img align="right" src="https://preview.redd.it/orchestra-hall-artworks-from-the-official-site-v0-u2axqv9mgnpb1.png?width=129&format=png&auto=webp&s=470f8f119505621bfcedaa7401b7dd0900ed4bd8">
 <p align="center">
-<ul aling="center">
 <li> ${\textsf{\color{Grey}my name is leonhardt! i'm 22 and bisexual (team player)}}$</li>
 <li> ${\textsf{\color{Grey}i adore drawing more than anything, and i am very passionate about it.}}$</li>
 <li>${\textsf{\color{Grey}I AM A NAHYUTA SAHDMADHI ENJOYER!! I LOVE HIM!!! }}$</li>
